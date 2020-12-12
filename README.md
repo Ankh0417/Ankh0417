@@ -1,11 +1,6 @@
 ### Hi there 👋
 
-### ⚡ Label:
-
-`Java 后端`
-
 ### :pushpin: Project
-
 
 ### 💬 End
 
