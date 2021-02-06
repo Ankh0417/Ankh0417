@@ -1,7 +1,5 @@
 ## Hey, Ankh0417 here! :wave:
 
-<img align="right" alt="Ankh0417's github stats" width="50%" src="https://github-readme-stats.vercel.app/api?username=Ankh0417&show_icons=true">
-
 ### :pushpin: Project
 
 ### 💬 End
