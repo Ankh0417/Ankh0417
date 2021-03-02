@@ -1,4 +1,4 @@
-## Hey, zIsaac here! :wave:
+## Hey, zzaIsaac here! :wave:
 
 ### :pushpin: Project
 
