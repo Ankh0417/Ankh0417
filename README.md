@@ -1,4 +1,4 @@
-## Hey, Ankh0417 here! :wave:
+## Hey, z-Isaac here! :wave:
 
 ### :pushpin: Project
 
@@ -6,4 +6,4 @@
 
 **欢迎通过以下方式了解我**
 
-> **邮箱:** ankh0417@qq.com
+> **邮箱:** 1968201957@qq.com
